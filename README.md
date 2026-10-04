@@ -1,0 +1,2 @@
+# premium-weld-fixture-001-welding-fixture-build-jig-cl
+Tired of rebuilding the same welding jig from crumpled napkin sketches? Your fixture designs deserve a permanent home, not a scrap of metal you'll have to measure again next week.  The Welding Fixture Build &amp; Jig Clamp Craft Studio turns your messy bench into a repeatable, searchable library of every jig you've ever made. Instead of wasting time re
